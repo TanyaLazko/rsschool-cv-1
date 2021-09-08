@@ -1,1 +1,1 @@
-https://TanyaLazko2021.github.io/rsschool-cv/cv
+https://github.com/TanyaLazko2021/rsschool-cv/blob/gh-pages/CV.md
