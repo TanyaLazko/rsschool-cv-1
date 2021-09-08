@@ -3,7 +3,7 @@
 
 
 **Address:**	65-91 Kozhara str.,246000 Gomel, Belarus
-**Mobile phone:**	+375447997787
+**Mobile phone:** +375447997787
 **Email:**	tanyawin1003@gmail.com
 **Skype:**	live:463f0de6116c50e9
 ***
@@ -27,7 +27,7 @@ leading legal adviser, HR specialist
 
 **2003-present**  
 
-**Responsibilietes included: **
+**Responsibilietes included:**
 
 Legal examination of documentation, contracts (including international), representation in courts, claims, state registration, selection and recruitment of personnel, analysis of internal documents. 
 
